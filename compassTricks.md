@@ -1,0 +1,1 @@
+Hold the compass horizontally in front of you with the direction of travel arrow pointing away from you. Use this arrow to guide you to your destination. Turn your body until the north end of the magnetic needle is aligned with the orienting needle, and you'll be properly oriented toward the destination on the map.
