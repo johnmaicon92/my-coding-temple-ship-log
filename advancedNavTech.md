@@ -1,1 +1,1 @@
-This is my new navigation method file. up-to-date
+This is my new navigation method file
